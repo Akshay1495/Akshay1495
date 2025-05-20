@@ -10,5 +10,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with how to land a internship why not.
 - 💬 Ask me about ...
 - 📫 How to reach me: 8009akshy@gmail.com
+- Watsapp: https://wa.me/+919999436865
 - 😄 Pronouns: He
 - ⚡ Fun fact: I can code for living
